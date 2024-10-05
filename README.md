@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @OlusegunAdeyemo
-- 👀 I’m interested in Cybersecurity
-- 🌱 I’m currently learning Cyber Security wit ISC2-CC
-- 💞️ I’m looking to collaborate Cybersucurity
+- 👀 I’m Cybersecurity Analyst - Entry level
+- 🌱 I am Certified Cybersecurity ISC2-CC
+- 💞️ I’m Open to collaborate Cybersucurity and hands-on training 
 - 📫 How to reach me +2348038686452 and oluseguna.adeyemo2004@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Olusegun is a professional with about 18 years work experience and a strong background in different organizations, government establishment and partnership. He has a vast understanding of managed services, vendors’ coordination, consultancy and Engineering project management. He’s an excellent team player, highly dynamic, career motivated and result-oriented individual with outstanding creative and analytical mind. 
